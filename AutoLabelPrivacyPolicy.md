@@ -1,4 +1,4 @@
-### AutoLabel PrivacyPolicy
+### AutoLabel Privacy Policy
 
 **Privacy Policy**
 
